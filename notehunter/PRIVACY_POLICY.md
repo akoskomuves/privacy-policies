@@ -71,7 +71,7 @@ We may update this privacy policy from time to time. Any changes will be posted 
 
 ## 11. Contact
 
-For questions about this privacy policy, contact us at: support@notehunter.app
+For questions about this privacy policy, contact us at: komuveskos@icloud.com
 
 ---
 
